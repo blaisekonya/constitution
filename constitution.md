@@ -1,4 +1,4 @@
-# Draft Constitution of the World Association
+# Constitution of the World Association
 
 ## I. NAME, SEAT, PURPOSE AND DURATION
 
